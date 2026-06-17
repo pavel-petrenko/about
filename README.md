@@ -1,2 +1,2 @@
 # About Me.
-Just about me. Kind of short portfolio :)
+Just about me.
